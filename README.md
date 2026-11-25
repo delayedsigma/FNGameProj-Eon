@@ -52,7 +52,7 @@ After Fontaine started exposing Greenwood for scamming modders, Greenwood began 
 
 He also talked badly about me and Jace when confronted about refusing to pay us, even accusing us of "skidding" despite us not stealing or copying anything.
 
-This isn't his first incident involving modders either. Previous names include Murilo, Delayed, Revi, and Bengio. Now it's me and Jace.
+This isn't his first incident involving modders either. Previous names include Murilo, delayed, Revi, and Bengio. Now it's me and Jace.
 
 We were owed **$334.50 USD**. After telling him we would open-source our completed work if he refused to pay, he finally sent a **$300 CAD gift card worth approximately $208 USD**, then we cut contact.
 
@@ -66,6 +66,8 @@ These are just some images I took, no clue if they show anything, just took them
 
 [https://drive.google.com/drive/folders/1YRuqEVIrfN-WRDO5OFiD96pSFMmWuDsq?usp=sharing](https://drive.google.com/drive/folders/1YRuqEVIrfN-WRDO5OFiD96pSFMmWuDsq?usp=sharing)
 
-This screenshot specifically confirms he was talking about US, not CAD, but paid us in that anyway.
+This screenshot specifically confirms he was talking about US, not CAD, but paid us in that anyway. Also in multiple photos you see we specifically say “$334.50” the dollar sign meaning USD.
+
+If attempt to dox Fontaine, you are gonna regret it. 
 
 [https://drive.google.com/file/d/1jJeWdkisS86su89M6ycV2C61lnv3zc07/view?usp=sharing](https://drive.google.com/file/d/1jJeWdkisS86su89M6ycV2C61lnv3zc07/view?usp=sharing)
