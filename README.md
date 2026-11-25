@@ -66,6 +66,8 @@ These are just some images I took, no clue if they show anything, just took them
 
 [https://drive.google.com/drive/folders/1YRuqEVIrfN-WRDO5OFiD96pSFMmWuDsq?usp=sharing](https://drive.google.com/drive/folders/1YRuqEVIrfN-WRDO5OFiD96pSFMmWuDsq?usp=sharing)
 
-This screenshot specifically confirms he was talking about US, not CAD, but paid us in that anyway.
+This screenshot specifically confirms he was talking about US, not CAD, but paid us in that anyway. In the DMs you see we specifically say “$334.50” the dollar sign meaning USD.
+
+If Greenwood attempts to dox Fontaine, or anybody else. Then he is going toregret it.
 
 [https://drive.google.com/file/d/1jJeWdkisS86su89M6ycV2C61lnv3zc07/view?usp=sharing](https://drive.google.com/file/d/1jJeWdkisS86su89M6ycV2C61lnv3zc07/view?usp=sharing)
